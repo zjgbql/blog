@@ -4,6 +4,8 @@
 
 ### 软件使用问题以及小技巧
 
+- （0008）[Chrome扩展程序，一款可以给你赚钱的扩展插件，被动收入，不用操心。](https://goodbu.blogspot.com/2019/12/chrome.html)
+
 - （0007）[ppt快速抠图加轮廓线，制作头像店铺海报视频封面，简单快速，替代Photoshop抠图](https://goodbu.blogspot.com/2019/12/pptphotoshop.html)
 
 - （0006）[chinawareblock证书拉黑，国产流氓、娱乐软件和不受欢迎的软件屏蔽工具，女盆友的电脑终于干净了](https://goodbu.blogspot.com/2019/12/chinawareblock.html)
@@ -23,3 +25,37 @@
 好好学习，天天向上，小白的频道，分享网络，软件使用以及电脑手机相关干货技巧指南，欢迎观看
 
 [![老步爱分享的YouTube频道](https://raw.githubusercontent.com/zjgbql/blog/master/Youtube-icon.png "我的频道，点击观看")](https://www.youtube.com/channel/UCeqgKhmuUzlKVWsU6EsgULw)
+
+老步想说：
+
+大家好，我是老步，是一个爱折腾的70后。
+
+这是我的Blog，转发我YouTube频道的视频。
+
+机缘巧合来到这个YouTube大平台。
+
+做视频完全是半路出家也谈不上，可以说是完全不会。
+
+没设备没经验。逐步丰富表现样式。
+
+我相信那几句话 “**如果你只想不做，是不会有收获的**”。
+
+不要做“**晚上想法千千万，早上起来原地走的人**”。
+
+选好方向现在就开始行动起来。做的不好没关系，逐渐修正，**每天进步一点点。**摸着石头过河！**共勉**
+
+======
+
+如果内容您不喜欢请您多多包涵。
+
+总之，谢谢您能来看我的Blog！
+
+希望在以后的路上， 无论你我还是否再能再有交集， 祝你身体健康，天天开心！
+
+======
+
+如果你喜欢，鼓励我进步。 欢迎订阅我的YouTube频道：https://www.youtube.com/channel/UCeqgKhmuUzlKVWsU6EsgULw?sub_confirmation=1 
+
+
+
+也可以加老步爱分享的免费TG电报群交流： （电报内搜索：@laobuaifenxiang） ：https://t.me/laobuaifenxiang
