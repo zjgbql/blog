@@ -4,6 +4,18 @@
 
 ### 软件使用问题以及小技巧
 
+- （0014）[上班偷看小说软件神器我看阅读器WKReader，不用再去找如何上班摸鱼看小说软件了，就这个就可以了。特别推荐](https://laobuaifenxiang.blogspot.com/2019/12/wkreader.html)
+
+- （0013）[批量修改Windows图片大小，最牛逼的最简单的方法方式图片批处理小技巧。不用装第三方图片处理软件](https://laobuaifenxiang.blogspot.com/2019/12/windows.html)
+
+- （0012）[微软Office OneNote的图片文字识别功能，免费OCR识别提取图片文字软件，提升工作效率](https://laobuaifenxiang.blogspot.com/2019/12/office-onenoteocr.html)
+
+- （0011）[神级截图软件Snipaste使用，贴图，标注超强工具，超详细使用教程！ 提升工作效率，官方下载地址](https://laobuaifenxiang.blogspot.com/2019/12/snipaste.html)
+
+- （0010）[Vlog新手剪辑，字幕，图片，录屏软件的选择，不再迷茫，马上开始行动赚钱。选好方向现在就开始行动起来。做的不好没关系，逐渐修正，每天进步一点点](https://laobuaifenxiang.blogspot.com/2019/12/vlog.html)
+- 
+- （0009）[namesilo域名注册购买解析教程，含2020优惠码，超级详细版教程](https://laobuaifenxiang.blogspot.com/2019/12/namesilo2020.html)
+
 - （0008）[Chrome扩展程序，一款可以给你赚钱的扩展插件，被动收入，不用操心。](https://laobuaifenxiang.blogspot.com/2019/12/chrome.html)
 
 - （0007）[ppt快速抠图加轮廓线，制作头像店铺海报视频封面，简单快速，替代Photoshop抠图](https://laobuaifenxiang.blogspot.com/2019/12/pptphotoshop.html)
