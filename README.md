@@ -13,7 +13,7 @@
 - （0011）[神级截图软件Snipaste使用，贴图，标注超强工具，超详细使用教程！ 提升工作效率，官方下载地址](https://laobuaifenxiang.blogspot.com/2019/12/snipaste.html)
 
 - （0010）[Vlog新手剪辑，字幕，图片，录屏软件的选择，不再迷茫，马上开始行动赚钱。选好方向现在就开始行动起来。做的不好没关系，逐渐修正，每天进步一点点](https://laobuaifenxiang.blogspot.com/2019/12/vlog.html)
-- 
+
 - （0009）[namesilo域名注册购买解析教程，含2020优惠码，超级详细版教程](https://laobuaifenxiang.blogspot.com/2019/12/namesilo2020.html)
 
 - （0008）[Chrome扩展程序，一款可以给你赚钱的扩展插件，被动收入，不用操心。](https://laobuaifenxiang.blogspot.com/2019/12/chrome.html)
