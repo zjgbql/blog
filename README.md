@@ -67,7 +67,3 @@
 ======
 
 如果你喜欢，鼓励我进步。 欢迎订阅我的YouTube频道：https://www.youtube.com/channel/UCeqgKhmuUzlKVWsU6EsgULw?sub_confirmation=1 
-
-
-
-也可以加老步爱分享的免费TG电报群交流： （电报内搜索：@buxiansenqun） ：https://t.me/buxiansenqun
